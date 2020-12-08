@@ -18,6 +18,9 @@ https://www.naixuejiaoyu.com/nde.html
 
 数据分析实战速成班
 https://www.naixuejiaoyu.com/nda.html
+
 微信：IT_Promise
+
 qq: 3125928112
+
 资源清单：https://www.yuque.com/itjiaochengxuexi/mxcpla/eoilbc
